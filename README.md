@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Lou-rose
-- 👀 I’m interested in: home education, Travelling, Wabi Sabi
+- 👀 I’m interested in: home education, Travelling, Wabi Sabi, developing new skills
 - 🌱 I’m currently learning: coding, and how to become an driving instructor 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
